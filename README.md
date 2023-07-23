@@ -5,3 +5,6 @@ https://youtu.be/f4BoQLl6XPM
 
 2. Machine Squashed (Easy)
 https://youtu.be/I0IDVTKyAlc
+
+3. Machine Devel (Easy)
+https://youtu.be/xFDXDHB2iek   
