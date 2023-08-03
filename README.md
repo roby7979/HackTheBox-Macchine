@@ -7,4 +7,7 @@ https://youtu.be/f4BoQLl6XPM
 https://youtu.be/I0IDVTKyAlc
 
 3. Machine Devel (Easy)
-https://youtu.be/xFDXDHB2iek   
+https://youtu.be/xFDXDHB2iek
+
+4. Machine Bank (easy)
+https://youtu.be/wq1ebANi_Ps
