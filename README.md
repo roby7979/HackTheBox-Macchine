@@ -11,3 +11,6 @@ https://youtu.be/xFDXDHB2iek
 
 4. Machine Bank (easy)
 https://youtu.be/wq1ebANi_Ps
+
+5. Machine Delivery (Easy)
+https://youtu.be/kwlgH72Vfb8
